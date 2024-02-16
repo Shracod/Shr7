@@ -1,2 +1,2 @@
 # Shr7
-Learning.....
+Learning.....something new everyday.
